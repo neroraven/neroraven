@@ -1,4 +1,7 @@
-![m eyes  2](https://github.com/neroraven/neroraven/assets/125639583/2cae6416-b049-4800-af4b-bf27721abd8f)
+<!-- ![m eyes  2](https://github.com/neroraven/neroraven/assets/125639583/2cae6416-b049-4800-af4b-bf27721abd8f)-->
+![chainsaw-man-girls-moewalls-com cut hdgif](https://github.com/neroraven/neroraven/assets/125639583/d3ba2f77-0480-4369-848e-3b84d3958e78)
+
+
 
 # 💫 About Me:
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F71FE4&random=false&width=435&lines=I'm+Nero%2C+an+inspiring+frontend+dev.)](https://git.io/typing-svg)
